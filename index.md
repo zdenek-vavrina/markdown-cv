@@ -618,7 +618,7 @@ Did not attend/judge in 2015
 **Deputy director**, *Institute of Seismology, University of Helsinki*, Helsinki, Finland.
 
 `2018-present`
-**Board member**, *Bachelor’s Programme in Science (in English)*, University of Helsinki, Helsinki, Finland.
+**Steering group member**, *Bachelor’s Programme in Science (in English)*, University of Helsinki, Helsinki, Finland.
 
 **Deputy member**, *Department of Geosciences and Geography mangagement group, University of Helsinki*, Helsinki, Finland.
 
@@ -630,7 +630,7 @@ Did not attend/judge in 2015
 **Co-coordinator geoscience seminar**, *Department of Geosciences and Geography, University of Helsinki*, Helsinki, Finland.
 
 `2017-2020`
-**Board member**, *Masters program in Geology and Geophysics*, University of Helsinki, Helsinki, Finland.
+**Steering group member**, *Masters program in Geology and Geophysics*, University of Helsinki, Helsinki, Finland.
 
 `2017-2018`
 **Preparatory group member**, *BSc of Science in English degree, University of Helsinki*, Helsinki, Finland.
